@@ -6,6 +6,10 @@ I'm a technologist
 
 Founder/CEO @ [MINDEVOLVED](https://www.mindevolved.com)
 
+Co Founder/CTO @ [Augusta Platforms Inc](https://www.getaugusta.app/)
+
+Founding Team/CTO @ [Fundabl](https://www.fundabl.com/)
+
 Founding Team/CTO @ [BetaCarbon](https://www.betacarbon.com)
 
 ## Skills
